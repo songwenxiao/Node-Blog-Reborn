@@ -2,4 +2,4 @@
 
 This is for practice only. Hope I could make some progress there.
 
-Chapter 1 just finished.
+Chapter 2 just finished.
